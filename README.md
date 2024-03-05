@@ -8,9 +8,9 @@
 <p align="left">
    
 ❤️ Estudiante de ingeniería en el IPN<br>
-❤️ Miembro del Pool de talento de Inroads México
-❤️ Miembro de Generación 2022 de programa de Mentorías corporativas Coppel
-❤️ Miembro de diferentes guilds en progresión mítica de World of Warcraft por más de 5 años
-❤️ Cuento con un par de logros CE de esas guilds
-❤️ Creadora de contenido en Twitch y YouTube
+❤️ Miembro del Pool de talento de Inroads México<br>
+❤️ Miembro de Generación 2022 de programa de Mentorías corporativas Coppel<br>
+❤️ Miembro de diferentes guilds en progresión mítica de World of Warcraft por más de 5 años<br>
+❤️ Cuento con un par de logros CE de esas guilds<br>
+❤️ Creadora de contenido en Twitch y YouTube<br>
 </p>
