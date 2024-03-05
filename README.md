@@ -7,7 +7,7 @@
 #### Sobre mí
 <p align="left">
    
-❤️ <a>Estudiante de ingeniería en el IPN</a>
+❤️ Estudiante de ingeniería en el IPN<br>
 ❤️ Miembro del Pool de talento de Inroads México
 ❤️ Miembro de Generación 2022 de programa de Mentorías corporativas Coppel
 ❤️ Miembro de diferentes guilds en progresión mítica de World of Warcraft por más de 5 años
